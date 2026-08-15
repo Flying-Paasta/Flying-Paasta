@@ -1,7 +1,7 @@
 ## B4 YOU INTERACT
 I fictkin as Feliciano Vargas (Italy). if you're also a fict/kin of him, PLEASE DNI because I am uncomfortable.
 
-Sometimes I can be overwhelmed with you interacting a little longer. You can c+h but must ask first because sometimes I want to be alone or with friends only.
+Interact before sending requests, sometimes I can be overwhelmed with you interacting a little longer. You can c+h but must ask first because sometimes I want to be alone or with friends only.
 
 If I feel uncomfortable around you, I can block you because *I block freely.*
 <!--
