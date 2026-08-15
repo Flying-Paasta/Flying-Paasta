@@ -1,7 +1,7 @@
 ## B4 YOU INTERACT
-I fictkin as Feliciano Vargas (Italy). if you're also a fict/kin of him, PLEASE DNI because I am uncomfortable.
+I fictkin as Feliciano Vargas (Italy). if you're also a fict/kin of him, PLEASE DNI.
 
-Interact before sending requests, sometimes I can be overwhelmed with you interacting a little longer. You can c+h unless there's a boundary in my name.
+Interact before sending requests, sometimes I can be overwhelmed with you interacting a little longer. You can c+h unless there's a boundary in my name. Ships can interact, with a note that you will interact with caution because sometimes I would get uncomfortable.
 
 If I ever feel uncomfortable around you, I can block you because *I block freely.*
 <!--
